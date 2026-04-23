@@ -1,5 +1,5 @@
-# Hi, I'm [Your Name] 👋 
-### Chartered Accountancy Aspirant | Macro-Financial Strategist | Power BI Specialist
+# Hi, I'm Saketh Kodukula 👋 
+### Chartered Accountancy Aspirant | Macro-Financial Strategist |
 
 ---
 
